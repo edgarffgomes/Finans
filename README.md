@@ -1,5 +1,4 @@
-![Captura de tela 2022-05-10 114942](https://user-images.githubusercontent.com/57186828/167657708-3f12c240-91ed-4700-bc19-d30ccf5aeb2f.png)
-
+![Captura de tela 2022-05-10 120309](https://user-images.githubusercontent.com/57186828/167660404-9bf9f365-c824-48dc-b314-196612c3303a.png)
 
 
 > Status: Completo ✅
